@@ -1,1 +1,1 @@
-[delaunay_voronoi](https://gemini.google.com/share/8d497b3ad19d)
+[delaunay_voronoi](https://g.co/gemini/share/b65dc1ea4491)
